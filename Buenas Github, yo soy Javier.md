@@ -10,3 +10,4 @@
    Así como el objetivo de este perfil es compartir y obtener conocimientos de la comunidad
 
 💻Me defino como una persona dinámica, eficaz y polivalente. Preparada para interactuar con la herramienta que haga falta para obtener los resultados necesario
+
